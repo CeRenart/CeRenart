@@ -1,4 +1,4 @@
-# ¡Hola! Soy [César] 👋
+# ¡Hola! Soy César 👋
 
 🎓 **Graduado en Digital Business** | 🚀 **Transformación Digital, Datos & Automatización** | 📍 **Valencia, España**
 
